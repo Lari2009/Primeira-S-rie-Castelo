@@ -1,4 +1,4 @@
-# Primeira-S-rie-Castelo
+# 1° Série Castelo
                                                  ZEBRA
                                                                                               
 As zebras são mamíferos que pertencem à família dos cavalos, os equídeos, nativos da África central e do sul. A pelagem deste animal consiste num conjunto de listras contrastantes de cor, com o seu corpo todo branco e algumas listras pretas, dispostas na vertical, exceptuando nas patas, onde se encontram na horizontal. São geralmente animais sociais que vivem desde pequenos a grandes manadas. Ao contrário de seus parentes mais próximos, cavalos e burros, zebras nunca foram verdadeiramente domesticadas.
